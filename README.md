@@ -1,1 +1,1 @@
-[# Mobil-Oyunum](https://alper00.itch.io/run-run)
+İtch.io Linki :(https://alper00.itch.io/run-run)
